@@ -1,5 +1,5 @@
 <p align="center">
-  <img src = "http://www.auric-energyfields.com/pages/colours/High%20astral%20&%20spiritual%20colors/ruby2.jpg" width="100%"/>
+  <img src = "http://azweddingsjust4u.com/wp-content/uploads/2013/09/ruby-on-rails-steams-critical-security-patch.jpg" width="20%"/>
 </p>
 
 
